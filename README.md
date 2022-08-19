@@ -1,2 +1,2 @@
 # LUV-CP
-<v> <b> Working Hard </v> </b>
+<b>Working hard</b>
